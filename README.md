@@ -1,1 +1,1 @@
-# A-simple-calculator-Osikominu-ademilola-Daniel
+# A simple calculator Ekrebe Aghogho Wesley
